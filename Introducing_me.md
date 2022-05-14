@@ -6,5 +6,5 @@ I've been following some interesting projects recently, you can follow my channe
  
 📫 You can find me here:
 - Youtube: https://www.youtube.com/channel/UCkGkKe4SIw7HzD1Jhm1UXuQ
-- Instagram: https://www.instagram.com/zeta_games_/
+- Instagram: https://www.instagram.com/zetalvx
 - GitHub: https://github.com/ZETALVX
